@@ -1,6 +1,15 @@
 ## Hey, man! (Wip)
 
+Hey! I'm Sonic, but you can calling kynn!
 
+I don't do much aside from cuddling and resting with the cool people I'm friends with. 
+
+Heck, I rest so much that it's gotten to a point where I allow anyone to cuddle right as I chill out.
+
+Come ever whenever you wanna! I'm the friendliest hedge youd ever come across.
+
+
+![image](https://cdn.discordapp.com/attachments/1542238388034338889/1566211530196779179/Untitled63_20261031220433.png?ex=6ae7b7a7&is=6ae66627&hm=830fd2c13955a203bdd64677f5c6c7dc35d57eaef33bfb250f38fdc378147802&)
 <!--
 **KYNNYONU/KYNNYONU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

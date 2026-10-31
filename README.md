@@ -8,7 +8,7 @@ Heck, I rest so much that it's gotten to a point where I allow anyone to cuddle 
 
 Come ever whenever you wanna! I'm the friendliest hedge youd ever come across.
 
-  ![image](https://cdn.discordapp.com/attachments/1542238388034338889/1566214959308734504/Untitled64_20261031221851.png?ex=6ae7bad9&is=6ae66959&hm=4b63acb9202c12a4911428daf7bfac75e05b05d41f9b32e8a07b11fbdbd2af3d&)
+  ![Image](https://i.postimg.cc/wj7p49yP/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3135343232333833383830.png)
 <!--
 **KYNNYONU/KYNNYONU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

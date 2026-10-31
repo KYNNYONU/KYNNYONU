@@ -1,7 +1,7 @@
 <p align="center">
 Hey, man!
 <p align="center">
-Hey! I'm Sonic, but you can calling kynn!
+Hey! I'm Sonic, but you can call me kynn!
 <p align="center">
 I don't do much aside from cuddling and resting with the cool people I'm friends with. 
 <p align="center">

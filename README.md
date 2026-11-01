@@ -1,5 +1,5 @@
 <p align="center">
-Hey, man!
+✩ . !! ` . Hey, man!
 <p align="center">
 Hey! I'm Sonic, but you can call me kynn!
 <p align="center">

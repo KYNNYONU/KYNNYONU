@@ -15,5 +15,6 @@ Come ever whenever you wanna! I'm the friendliest hedge youd ever come across.
     
   ![Image](https://i.postimg.cc/wj7p49yP/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3135343232333833383830.png)
 
-
-**I plan on making a sonic exe au 👀**
+16:48 [SA1 Tails] sonak dot ex
+falls down to
+16:53 [THE SACRIFICIAL LAMB , BUYCD] speed dot excel

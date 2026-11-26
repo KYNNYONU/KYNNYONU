@@ -12,7 +12,7 @@ Come ever whenever you wanna! I'm the friendliest hedge youd ever come across.
 🌟  Note!! : If I'm with friends, unless I still got c + h in my name, come sit over freely!
   🌟 
     
-  <img src="https://cdn.discordapp.com/attachments/1542238388034338889/1575599586935054457/Untitled93_20261126194930.png?ex=6b09def6&is=6b088d76&hm=6c179305270b7cce4377d30fa02d6e08b5fdc1c094719a5c1b291cb916c2bd45&" width="500">
+  <img src="https://cdn.discordapp.com/attachments/1542238388034338889/1575600577419673610/Untitled93_20261126195253.png?ex=6b09dfe2&is=6b088e62&hm=c1498c212bb8dd9507dfe60f3fca6331a60a56b5a1f32d5ba351d7167a13d375&" width="500">
      ^
   (By fluffybunipawzz! My goat 💗🥹)
 
